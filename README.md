@@ -1,4 +1,4 @@
-## Its_Me_Amal🥰
+## Its_me_AFZAL 🥰
 
 <img src=https://www.linkpicture.com/q/IMG-20210629-WA0181.jpg>
 
@@ -6,7 +6,7 @@
 Thank you Everyone for helping to develop this one🦋
 Join Whatsapp Group 
 # kerala Bot | Group
-https://chat.whatsapp.com/Jh3BjpsLdglJhDrea4ME52 
+https://chat.whatsapp.com/Lmrnnuf1RNrG4Ufk6feuZ8 
 
 
 
@@ -14,7 +14,7 @@ https://chat.whatsapp.com/Jh3BjpsLdglJhDrea4ME52
 ### We will always remember you..
 
 - [Yusuf Usta](https://github.com/yusufusta)
-- [@fusufs](https://t.me/fusufs)
+- [@fusufs](https://t.me/ARAKKALSMOKY)
 
 <p align="center">
   <a href="https://github.com/phaticusthiccy/WhatsAsenaDuplicated/fork">
